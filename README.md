@@ -4,6 +4,5 @@ jdjj
 knnlknl
 hggo
 xm
-bb'b
-'n'
+bb'
 xkxkx
